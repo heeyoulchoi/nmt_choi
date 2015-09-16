@@ -1,4 +1,6 @@
 # nmt_choi
 henry choi
 
-yes. what ? 
+no. what ? 
+
+i don't think so. 
